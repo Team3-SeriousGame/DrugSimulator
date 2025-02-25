@@ -23,4 +23,4 @@
 
 ---
 #### DEMO 영상(소리 포함)
-https://drive.google.com/file/d/1ftAT5VaoEWtReiKmQfI-wb5eNwfN_x2V/view?usp=sharing 
+https://youtu.be/aCXmsk3N0GM
